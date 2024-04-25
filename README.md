@@ -37,6 +37,9 @@
 ## Сокровища 
 ![IMG_1008](https://github.com/SirRr1ch/TreasureUncharted/assets/81527017/cf96f51b-9110-40e2-8e3e-36d2f866eebf)
 ![IMG_1009](https://github.com/SirRr1ch/TreasureUncharted/assets/81527017/319b09c9-9c6b-4cda-bacf-012103409faf)
+## Машина в начале и конце уровня
+![IMG_1010](https://github.com/SirRr1ch/TreasureUncharted/assets/81527017/aff02bda-9d10-40b0-b6fa-f67a45cd8297)
+
 
 
 
